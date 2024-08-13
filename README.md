@@ -1,0 +1,3 @@
+- 👋 0i, eu sou @paola-vitoria
+- 🌱 atualmente estou fazendo o curso do alura
+- paola.steff@escola.pr.gov.br
